@@ -1,2 +1,2 @@
 # SustainableStraws
-Founder of the projet Sustainable Straws | Digital &amp; Data-Driven Venture
+Fondatrice du projet Sustainable Straws | Digital & Data-Driven Venture
